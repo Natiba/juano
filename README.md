@@ -1,1 +1,0 @@
-# natiba.github.io
